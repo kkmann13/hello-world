@@ -2,4 +2,4 @@
 
 Hi Humans!
 
-Destroy all Humans!
+Destroy all Humans! Including kitens!
